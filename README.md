@@ -25,7 +25,7 @@ Anuj recommends that students do this course on their own and avoid cheating, as
 
 ## Contact Information
 
-If you encounter any problems or have any questions, you can contact Anuj Kumar on Instagram at "_nujsiwach_".
+If you encounter any problems or have any questions, you can contact Anuj Kumar on Instagram at [LINK]{https://www.instagram.com/_anujsiwach_?igsh=MWZzOHpxMnJ2NWIxMg%3D%3D&utm_source=qr}
 
 Email- "anujkumar142000@gmail.com"
-## Happy learning!
+## Happy learning! 
